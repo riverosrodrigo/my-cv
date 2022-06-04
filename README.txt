@@ -1,0 +1,2 @@
+Hola, mi nombre es Rodrigo Riveros y tengo el agrado de dirigirme a uds con el objetivo de participar en la busqueda que vi en la publicacion de linkedin.
+Adjunto mi CV para que puedan conocer mas sobre mi, agradezco el tiempo dedicado y espero poder ser contactado para una posible entrevista. Saludos!
